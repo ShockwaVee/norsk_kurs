@@ -7,11 +7,17 @@
 3. 
    - Jordkloden - kugla zemaljska
    - Å reede - spasiti
-   - flom - poplava
-   - isbre - glečer
+   - Flom - poplava
+   - Isbre - glečer
    - Å forurense - zagaditi
    - å forsøple - "to litter"
-   - utslipp - "emission"
+   - Utslipp - "emission"
 
+##3. zadatak
 
-   
+Jeg synes at jeg er miljøbevisst nok, men det kan bli bedre. Unntatt av de vanligste måter du kan ta vare på miljøet, her kommer noen måter hvilke er ikke så populære:
+    - Fly mindre - jeg flyr ikke så ofte, så det er ikke noen problem
+    - Gi bort en opplevelse i steden for ting - produksjon og transport av en ting kan bli dyr. Hvis du ikke har mye penger, kan du ha en god samvittighet fordi du tar vare på miljøet
+    - Ta vare på PC'en din - det motsetter seg med det tidlige tips, men du må ha penger for å kjøpe nye komponenter
+    - Dusj med kjæresten din - hvis du ikke har en kjæreste, finne noen andre
+    - Bruk kollektivtransport - må jeg forklare meg?
