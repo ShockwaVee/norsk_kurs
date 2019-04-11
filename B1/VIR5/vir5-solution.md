@@ -2,11 +2,11 @@
 
 ##1. zadatak
 
-1. bilo je nekih stvari koje su me iznenadile, negativno i pozitivno, no najvise me iznenadilo koliko su ljudi uvjereni u sebe. ne mogu puno govoriti o ovoj temi bez da jos vise istrazim o seceru, no cini mi se da ljudi koji su protiv secera uzimaju zdravo za gotovo ono u sto vjeruju. temeljem toga, ima nekih stvari koje mi se cine logicnije, no moguce da su na moje misljenje utjecali ljudi kojima su dodali doktorske titule poslije imena. mogu samo reci da mi ovo ima vise smisla nego zivjeti "bez" secera, ali samo jedna epizoda od 40 minuta ne bi trebala to potvrditi.
+1. Noen ting har overrasket meg, både negativ og positivt. I samsvar med det, var jeg mest overrasket med menneskenes selvtillit. Jeg kan ikke si mye uten mer forskning om sukker, men det virker som mange mennesker som er imot sukker ta for gitt informasjoner. De velger hva  passer til dem og deres meninger. På grunn av det, der er noen ting som ser ut mer logisk, men det er mulig at tankene mine var oppmuntret av mennesker med "Dr.med." etter navnene deres. Jeg kan bare si at det høres dårlig ut å leve "uten" sukker, skjønt jeg kan ikke være sikker på grunn av en episode av 40 minutter.
 
-2. bio sam najvise impresioniran ljudima koji tvrde da je secer jako stetan, iako nemaju dokumentacije koja potvrduje sve sto govore.
+2. Jeg var mest imponert av mennesker som hevder at sukker er giftig, selv om de ikke har dokumentasjon.
 
-3. savjete koje bih dao drugima nisu povezani sa secerom, mislim da nemam dovoljno znanja da dajem savjete u vezi toga. jedini savjet koji bih dao je da treba prikaldno istraziti temu prije nego sto cemo je dijeliti s drugima.
+3. Jeg skal gi et tips til andre, men det dreier ikke om sukker. Jeg synes at det er veldig viktig å forske temaet før du gi tips til andre om det.
 
 ##2. zadatak
 
