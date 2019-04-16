@@ -10,3 +10,4 @@
 
 ##2. zadatak
 
+Jeg vet at jeg ikke lever sunt. Det må endre seg, men jeg har ikke tenkt mye på kostholdsendring og fysisk aktivitet. Jeg tar ikke vare på kostholen min og jeg trener ikke. På grunn av det har jeg fått vekt. Jeg er klar over at det er dårlig og jeg planlegger å arbeide med det når jeg flytter til Zagreb. På denne måte kan jeg ha mer kontroll på det. Jeg synes at nordmenn lever sunnere enn kroater. I tillegg, de få mer bevegelse. Derfor, det later for meg at livskvalitet i Norge er bedre enn i Kroatia.
