@@ -14,6 +14,4 @@ I løpet av de siste 70 årene har det kommet mange av innvandrerne fra Pakistan
 
 ##3. zadatak
 
-Mislim da ce se useljenici uvijek osjecati drugacije u novoj zemlji. Zato bismo se trebali potruditi da ih ne osudujemo jer ne znamo zbog kojih su razloga selili u drugu zemlju. However, useljenici bi trebali nauciti o kulturi nove zemlje i prihvatiti ono s cim se slazu. naravno, trebali bi biti u mogucnosti provoditi svoju kulturu i ne bi smjeli biti osudivani zbog toga, ali ne bi smijeli forsirati svoja razmisljanja ako to ljudi ne zele. bitno je da postoji kompromis s obje strane kako bi integracija prosla cim lakse.
-
-Jeg synes at innvandrere skal alltid føle seg forskjellige i andre land. Følgelig må vi ta ikke avstand fra dem fordi vi ikke vet hvorfor de har flyttet til et nyt land.
+Jeg synes at innvandrere skal alltid føle seg forskjellige i andre land. Følgelig må vi ta ikke avstand fra dem fordi vi ikke vet hvorfor de har flyttet til et nyt land. Imidlertid, innvandrere bør lære om andre kulturer og akseptere hva de er enig med. De må ha muligheter for å leve egen kultur, men de bør ikke tvinge tankene deres hvis mennesker ikke vil det. Det er viktig at et kompromiss eksisterer fra både siden så alt kan være lettere.
