@@ -11,6 +11,13 @@
 7. Vi kan lære at der skal alltid være løgner og vi må alltid være forberedte for dem.
 
 ##2. zadatak
+Folketro, eller overtro som har mer nedsettende betydning, er forestillinger som ikke er aksepterte i religiøn eller vitenskap. Folketroen kan manifestere seg i opplevelser, fortellinger of skikker. Folketroen forteller ofte om arbeid, årsfestene, høytidene, sykdom, død og livet etter døden. Jeg skal beskrive noen av vesenene vi kan finne i norsk folketro.
+
+Nissen eller fjøsnissen var en liten mann som hadde lengt skjegg og hadde grå klær. Han ofte hadde en rød lue på hode. Han passet på dyr og var nyttig på gården. Hvis han var ikke behandlet godt, kunne han skade folk og dyr. Du måtte gi ham god mat og drikke på julekvelden.
+
+https://snl.no/folketro
+https://snl.no/.taxonomy/3088
+https://www.uib.no/universitetsmuseet/66914/nissen-i-tro-og-tradisjon
 fjøsnissen
 fanden
 Askeladden
