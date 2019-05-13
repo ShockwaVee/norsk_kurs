@@ -15,14 +15,14 @@ Folketro, eller overtro som har mer nedsettende betydning, er forestillinger som
 
 Nissen eller fjøsnissen var en liten mann som hadde lengt skjegg og hadde grå klær. Han ofte hadde en rød lue på hode. Han passet på dyr og var nyttig på gården. Hvis han var ikke behandlet godt, kunne han skade folk og dyr. Du måtte gi ham god mat og drikke på julekvelden.
 
-https://snl.no/folketro
-https://snl.no/.taxonomy/3088
-https://www.uib.no/universitetsmuseet/66914/nissen-i-tro-og-tradisjon
-fjøsnissen
-fanden
-Askeladden
-småfolket
-draugen
-deilidgasten
-http://www.mythicalcreaturesguide.com/page/N%C3%B8kken
-https://en.wikipedia.org/wiki/Fossegrim
+Fanden er en personifikasjon av Djevelen i kristendommen. Han kan være faktisk Djevelen og han kan være noen av mildere varianter av ham. Han har ofte lurt folk, men i noen eventyrer har folk lurt ham. Fanden er en av eufemismer av Djevelens rette navn, fordi å bruke Djevelens rette navn kunne være dårlig for deg. Ordet fanden er vanlig i banning i Norge.
+
+Askeladden er den hovedpersonen i flere norske eventyr. Han er ofte beskrevet som idealskikkelse. Han er den yngste av tre brodrene og fra hvem ingen forventer noe av. På slutt, vinner han køngens dattera og halve riket. Han representer vanlig folk som vinner  hvor andre mislykkes.
+
+Draugen er en vesen, egentlig en avdød, hvem enten bor i haugen eller foralter haugen for å hjemsøke de levende. Han varslet død for dem som så ham og han seilte i en halv båt. Ordet draug er hentet fra norrøne ordet draugr som kunne bety skikkelse til en hvilken som helst avdød.
+
+Deilidgasten (av tysk geist) er en gjenferd som i levende hadde flyttet merkesteiner (deilder) for å utvide sin egen eiendom. Til straff, etter døden, må han prøve å bære steinene på plass igjen. Det er umulig og man kan høre deilidgastens skrik fra frustasjon.
+
+Nøkken kan ta forskjellige skikkelser og søker å lokke mennesker til seg i vannet for å drukne dem. Hvis man navner den ved navn, mister den sin makt. Nøkken er særlig farlig etter solnedgang.
+
+Disse er noen av vesenene i norske folketroen som jeg liker mest. Det var morsomt å lære om dem, men i gamle dager folk har egentlig trodd i dem. Jeg forstår litt mer hvorfor var og er mennesker redde for å gå ut i natta.
