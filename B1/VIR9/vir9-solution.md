@@ -6,6 +6,21 @@
 2. Jeg likte best idéen om at vi var ingen før og vi skal bli en eventyr etter.
 3. Eventyrets moral er at vi har glemt hva vi egentlig trenger og vi må tenke om ingen litt mer.
 
+##2. zadatak
+1. Kommunens kultur- og informasjonsdag arrangeres for nye innflyttere.
+2. De skal høre om hva "Kultur og idrett" jobber med og kan gå på omvisning på Rådhuset og på kinoen.
+3. Motocross er når du kjører motorsykkel på en vei uten asfalt.
+4. Hvis du vil på trening og konkurranse må du gå på kurs.
+5. Man kan besøke bowlinghallen hver tirsdag og lørdag.
+6. Fire grupper kan spiller samtidling.
+7. 
+8. Lokalene i andre etasje kan bruke hvem som helst som leier dem.
+9. Ben må ikke legger på.
+10. De innser de fremdeles elsker hverandre etter de passer på lille Martha.
+11. Jeg synes at det første tilbudet er det beste fordi det er gratis og du kan lære noe nytt.
+12. Jeg vil gjerne gå på motocross, men jeg er for redd for det.
+
+
 ##3. zadatak
 
- Najvise mi se svida prica o Charonu koji prevozi duse mrtvih preko rijeke styx u svijet mrtvih. zanimljivo mi je sto su ljudi, zbog toga, stavljali ljudima novcic u usta kako bi mu mogli platiti pri prelasku na drugu stranu. neki autori kazu da su, oni koji nisu mogli platiti proviziju, morali lutati obalom 100 godina. nekad se sjetim u sto su ljudi vjerovali i kako su stvarno radili neke od ovih rituala kako bi ispunili bozje "zelje".
+Vet du om Kharon fra gresk mytologi? Han frakter de døde over elvene Styx og Acheron fra verden til de levende til verden til de døde. Kharon er sønnen til Erebus. Det er interesant fordi mennesker har satt mynter inn i avdødes munn for skyssen. Noe av forfatteren sier at de som kunne ikke betale måtte vandre på kystene i et hundre år. Kharon har mange beskrivelser som varierer fra vanlig mann til skjellett med hette. Jeg liker ham best fordi det er utrolig hva mennesker har gjort for å oppfylle guds ønsker og hva de har trodd skulle hjelpe.
