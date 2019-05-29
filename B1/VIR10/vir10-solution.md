@@ -8,11 +8,11 @@
 
 ##2. zadatak
 
-9. Jeg synes at den var en ærlig straffen. De måtte betale for hva de har ødelagt å det høres bra ut. Hvis det var en rimelig pris den gangen, har jeg ikke noe problem med straffen.
-10. Forhåpentlegvis har guttene lært noe om ansvar og at du må tenke på andre, ikke bare på seg selv.
-11. Jeg tror at guttene har lært å føle ansvar og å være tolerant, men jeg høper at de skal bli mer lydig.
+9. Jeg synes at den var en ærlig straffen. De måtte betale for hva de har ødelagt å det høres bra ut for meg. Hvis det var en rimelig pris den gangen, har jeg ikke noe problem med straffen.
+10. Forhåpentlegvis har guttene lært noe om ansvar og at du måtte tenke på andre, ikke bare på seg selv.
+11. Jeg tror at guttene har lært å føle ansvar og å være tolerant, men jeg høper at de skal bli mer lydige.
 
 #3. zadatak
 
-2. 
-Mislim da je najvazniji zadatak skole da nauce djecu odgovornosti. dio tog zadatka pripada i roditeljima, no djeca dobivaju puno zadataka o kojima moraju postepeno sami brinuti. naravno, u pocetku ce im roditelji pomoci i podsjetiti ih, no u visim razredima djeca se moraju sama sjetiti zadace i ostalih zadataka koje dobiju. iako smiju traziti pomoc, trebaju i sami pokusati rjesiti sto mogu. mislim da bi se roditeljima trebala povjeriti odgovornost oko odgoja. ne provode toliko puno vremena u skoli da sve moraju tamo nauciti, vec bi ih roditelji trebali nauciti sto je u redu, a sto se ne smije. skola ce sigurno pridonijeti razvoju djece, no ako se svi drze svojih uloga, djeca ce imati jos vise koristi od toga.
+Jeg tror at skolens viktigste oppgaven er å lære barn å ta ansvar. Foreldrene må deltar i det, men barn skal passe på mer og mer arbeid de få. Selvfølgelig, skal foreldrene hjelpe og minne dem om lekser og andre oppgaver de får. I høyere klasser må barn minne seg selv slik at de kan bli mer selvstendige. Hvis de trenger hjelp, kan de spørre for det, men det er best å prøve å gjøre det seg selv først.
+Oppdragelse må være overlot til foreldrene. Når barn begynner med undervisning, bruker de mer tid på hjemme enn i skolen. Derfor må foreldrene låre barna si forskjell mellom god og dårlig. Skoler skal medvirke til oppdragelse, men hvis alle vet hva rollene deres er, barn skal ha enda mer nytte av det.
