@@ -15,8 +15,8 @@
 
 ##3. zadatak
 
-Bok! Ja sam Davor i sviram bass u poznatom metal bendu, Judas Priest. Danas imam probu pa cu vam malo ispricati sto radim na putu do tamo.
+Hei! Jeg hetter Davor og jeg spiller bas i et kjent metal band, Judas Priest. Når må jeg dra til studioet fordi vi har ei prøve. Du kan komme med, hvis du vil.
 
-Probe nam traju dosta dugo, oko 4 sata. Imat cemo turneju za mjesec dana pa svaki drugi dan vjezbamo cijeli set pjesama koje cemo svirati na turneji. Promoviramo i novi album koji smo nedavno izdali. Ta 4 sata dosta brzo produ pa nakon toga svi odemo na pivu u obliznji kafic. Ne odlazimo svaki put na pivo, no ne stignemo se puno druziti zbog naseg uzurbanog zivota. Prije tjedan dana smo imali nagradnu igru i jedan fan je osvojio mjesec dana lekcija za bass koje ja predajem. Nakon predavanja odlazim na potpisivanje knjige koju sam izdao!
+Prøver varer lenge, omtrent i 4 timer. Vi skal ha turnéen om en måned, så vi øver tre timer i uka. På turnéen skal vi fremme vårt nytt album som vi har publisert. Disse 4 timer går raskt deretter går vi i en nærliggende kafé for å drikke. På grunn av våre travle liv, har vi ikke tid for å gjøre det hver gang. Etterpå skal en beundrer komme her for å ha musikkurs med meg. Han vunnet det i et sjansespill.
 
-Trenutno nemam bas puno vremena za sebe jer uskoro krecemo na turneju, no volim to sto radim i nikada ne bih radio bilo sto drugo.
+For øyeblikket har jeg ikke tid til meg selv, men det er midlertidig. Jeg elsker hva jeg gjør og jeg aldri vil endre det.
